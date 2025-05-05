@@ -5,4 +5,5 @@ Hope to meet you sometime soon.
 Have a nice day!
 
 
-- The Curious Mind
+Thank you,
+The Curious Mind
